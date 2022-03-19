@@ -1,6 +1,6 @@
 Hi! I'm noob in the this job.
-I'm Very Sorry For My Greenness.
-Don't Forget Me!!!
+I'm Very Sorry For My Noob.
+Don't Forget Support Me!!!
 <!---
 GencYaziimci17/GencYaziimci17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
