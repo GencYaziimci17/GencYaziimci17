@@ -1,5 +1,5 @@
 Hi! I'm noob in the this job.
-I'm Very Sorry For My Noob.
+I'm Very Sorry.
 Don't Forget Support Me!!!
 <!---
 GencYaziimci17/GencYaziimci17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
